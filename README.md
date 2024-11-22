@@ -7,3 +7,6 @@ Resume:
 resume score is 75 percent in enhancv
 
 https://chatgpt.com/share/673d66bf-0ea8-800f-bc7e-9c3ed4bd1bac
+
+
+https://chatgpt.com/share/673f6996-c4e0-8004-b258-99d2cf0d60e5
